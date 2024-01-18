@@ -1,3 +1,5 @@
+![KakaoTalk_20240119_060200156](https://github.com/hazero707/hazero707/assets/141379781/6d3b5c85-edcf-47ca-a0fd-81a3c6919625)
+
 ### Hi 👋 I'm heidi jeong
 
 <!--
